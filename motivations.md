@@ -1,0 +1,1 @@
+I'm actually not changing my career. I just graduated college last May with a degree in Communication Studies. My decision to go to Turing is motivated by my desire to become a software developer. If all things go according to plan, this will be my one and only career. 🤞😁
